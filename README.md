@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @edaeray
 - 👀 I’m interested in management and nature.
-- 🌱 I’m currently learning coding.
+- 🌱 I’m currently learning coding and nFT arts.
 - 💞️ I’m looking to collaborate on community growrh.
 - 📫 How to reach me, you can add as friend.
 
